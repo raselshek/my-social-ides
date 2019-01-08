@@ -1,1 +1,1 @@
-#Rasel shek social id linkhttps://raselshek.github.io/my-social-ides/
+#Rasel shek social id link https://raselshek.github.io/my-social-ides/
